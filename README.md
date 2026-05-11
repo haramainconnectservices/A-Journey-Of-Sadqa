@@ -1,4 +1,4 @@
-###Gift a Wheelchair in Makkah or Gift a Quran in Madinah: A Journey of Sadaqah That Changes Everything###
+Gift a Wheelchair in Makkah or Gift a Quran in Madinah: A Journey of Sadaqah That Changes Everything
 
 What if this year, instead of a resolution that fades by February, you committed to something that outlasts your lifetime? There are acts of worship so quietly powerful that their reward continues long after you are gone, and two of the most meaningful ones you can perform today are to [gift a wheelchair in Makkah](https://haramainconnect.com/products/gift-a-wheelchair-in-makkah) or [gift a Quran in Makkah or Madinah](https://haramainconnect.com/products/give-a-quran-in-makkah-or-madinah), planting seeds of mercy in the holiest places on earth.
 
